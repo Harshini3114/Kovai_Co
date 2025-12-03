@@ -1,6 +1,4 @@
-Understood. Here is your content **exactly as given, nothing added, nothing removed**, only formatted properly and professionally:
 
----
 
 ## **Kovai Co**
 
